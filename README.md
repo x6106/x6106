@@ -4,13 +4,8 @@
     <img src="https://readme-typing-svg.demolab.com?font=&duration=3000&pause=1001&color=973939&center=true&vCenter=true&multiline=true&width=1000&height=100&lines=%F0%9D%95%80+%F0%9D%90%9D%F0%9D%90%A8%F0%9D%90%A7'%F0%9D%90%AD+%F0%9D%90%A1%F0%9D%90%A8%F0%9D%90%A5%F0%9D%90%9D+%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%A0%F0%9D%90%9E%F0%9D%90%AB+%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%B2%F0%9D%90%A6%F0%9D%90%A8%F0%9D%90%AB%F0%9D%90%9E;%F0%9D%94%BC%F0%9D%90%AF%F0%9D%90%9E%F0%9D%90%A7+%F0%9D%90%9F%F0%9D%90%A8%F0%9D%90%AB+%F0%9D%90%A9%F0%9D%90%9E%F0%9D%90%A8%F0%9D%90%A9%F0%9D%90%A5%F0%9D%90%9E+%F0%9D%90%B0%F0%9D%90%A1%F0%9D%90%A8+%F0%9D%90%A1%F0%9D%90%AE%F0%9D%90%AB%F0%9D%90%AD+%F0%9D%90%9A%F0%9D%90%A7%F0%9D%90%9D+%F0%9D%90%9B%F0%9D%90%9E%F0%9D%90%AD%F0%9D%90%AB%F0%9D%90%9A%F0%9D%90%B2%F0%9D%90%9E%F0%9D%90%9D+%F0%9D%90%A6%F0%9D%90%9E."
       alt="Typing SVG" />
   </a>
-
 </div>
-<p align="center">
-  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjtzcmpvhhe65n4f2e2zmfjvba&cover_image=true&theme=novatorem&border_radius=15&bar_color=53b14f" />
-</p>
-
-⤷ **𝘗𝘭𝘦𝘢𝘴𝘦 𝘳𝘦𝘢𝘥 𝘵𝘩𝘪𝘴 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨. 𝘐𝘵’𝘴 𝘩𝘦𝘳𝘦 𝘵𝘰 𝘣𝘦 𝘤𝘭𝘦𝘢𝘳, 𝘯𝘰𝘵 𝘤𝘰𝘮𝘱𝘭𝘪𝘤𝘢𝘵𝘦𝘥.**
+⤷ 𝘗𝘭𝘦𝘢𝘴𝘦 𝘳𝘦𝘢𝘥 𝘵𝘩𝘪𝘴 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨. 𝘐𝘵’𝘴 𝘩𝘦𝘳𝘦 𝘵𝘰 𝘣𝘦 𝘤𝘭𝘦𝘢𝘳, 𝘯𝘰𝘵 𝘤𝘰𝘮𝘱𝘭𝘪𝘤𝘢𝘵𝘦𝘥.
 
 </div>
 <div style="
@@ -87,4 +82,5 @@ If you force me into anything I'm not okay with or keep pushing after I've said 
 </div>
 </div>
 
+<br></br>
 <img src="https://files.catbox.moe/8fmxyy.png" width="1000" height="250">
