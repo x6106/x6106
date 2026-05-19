@@ -10,7 +10,7 @@
   <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31pjtzcmpvhhe65n4f2e2zmfjvba&cover_image=true&theme=novatorem&border_radius=15&bar_color=53b14f" />
 </p>
 
-⤷ **𝘗𝘭𝘦𝘢𝘴𝘦 𝘳𝘦𝘢𝘥 𝘵𝘩𝘪𝘴 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨. 𝘐𝘵’𝘴 𝘩𝘦𝘳𝘦 𝘵𝘰 𝘣𝘦 𝘤𝘭𝘦𝘢𝘳, 𝘯𝘰𝘵 𝘤𝘰𝘮𝘱𝘭𝘪𝘤𝘢𝘵𝘦𝘥.** 𝘚𝘰 𝘪𝘧 𝘺𝘰𝘶’𝘳𝘦 𝘪𝘯 𝘪𝘵, 𝘫𝘶𝘴𝘵 𝘳𝘦𝘴𝘱𝘦𝘤𝘵 𝘪𝘵 𝘢𝘯𝘥 𝘥𝘰𝘯’𝘵 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵 <3
+⤷ **𝘗𝘭𝘦𝘢𝘴𝘦 𝘳𝘦𝘢𝘥 𝘵𝘩𝘪𝘴 𝘣𝘦𝘧𝘰𝘳𝘦 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨. 𝘐𝘵’𝘴 𝘩𝘦𝘳𝘦 𝘵𝘰 𝘣𝘦 𝘤𝘭𝘦𝘢𝘳, 𝘯𝘰𝘵 𝘤𝘰𝘮𝘱𝘭𝘪𝘤𝘢𝘵𝘦𝘥.**
 
 </div>
 <div style="
