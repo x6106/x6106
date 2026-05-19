@@ -41,7 +41,7 @@ font-weight:bold;
 letter-spacing:2px;
 margin-bottom:20px;
 ">
- ゛🚧 𝔻𝐍𝐈 ノ 𝔹𝐎𝐔𝐍𝐃𝐀𝐑𝐈𝐄𝐒 🚧 ˎˊ˗
+ ゛🚧 𝔻𝐍𝐈 ノ 𝔹𝐎𝐔𝐍𝐃𝐀𝐑𝐈𝐄𝐒 🚧 ˎˊ˗ ᶜˡⁱᶜᵏ ᵒⁿ ⁱᵗ
 </summary>
 <br>
 
