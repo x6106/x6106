@@ -45,7 +45,7 @@ margin-bottom:20px;
 <b>𝐁𝐀𝐒𝐈𝐂 𝐃𝐍𝐈 𝐂𝐑𝐈𝐓𝐄𝐑𝐈𝐀</b><br>
 Obvious. DNI if you’re racist, homophobic, transphobic, ableist, sexist, or support any kind of discrimination, harassment, or hate. Also DNI if you’re here to start drama, spread negativity, or disrespect basic boundaries.<br><br>
 
-<b>𝐖𝐇𝐎𝐄𝐕𝐄𝐑 𝐒𝐓𝐀𝐘𝐒 𝐅𝐑𝐈𝐄𝐍𝐃𝐒 𝐖𝐈𝐓𝐇 𝐌𝐘 𝐄𝐗-𝐅𝐑𝐈𝐄𝐍𝐃𝐒/𝐀𝐁𝐔𝐒𝐄𝐑𝐒/𝐀𝐍𝐘𝐎𝐍𝐄 𝐇𝐔𝐑𝐓 𝐌𝐄</b><br>
+<b>𝐖𝐇𝐎𝐄𝐕𝐄𝐑 𝐒𝐓𝐀𝐘𝐒 𝐅𝐑𝐈𝐄𝐍𝐃𝐒 𝐖𝐈𝐓𝐇 𝐌𝐘 𝐄𝐗-𝐅𝐑𝐈𝐄𝐍𝐃𝐒/𝐀𝐁𝐔𝐒𝐄𝐑𝐒(𝐆𝐑𝐎𝐎𝐌𝐄𝐑𝐒)/𝐀𝐍𝐘𝐎𝐍𝐄 𝐇𝐔𝐑𝐓 𝐌𝐄</b><br>
 YOU'RE hurting me now. DNI if you still associate with my ex-friends or groomers or anyone who harmed me and made me feel uncomfortable. I genuinely do not care if you met them before me, shared “good memories” with them, or think they were nice to you. They still hurt me, manipulated me, and caused damage in my life, and I’m not comfortable around people who continue supporting or staying close to them after knowing that.. especially if you call yourself “my friend”. If i suddenly block you out of nowhere after finding out you still talk to them, this is why. I need you to understand how disappointing it feels to put trust in someone just for them to go behind my back, stay connected to people who hurt me, or tell them things about me after promising they wouldn’t. Sometimes it genuinely makes me wish I never wasted my time trusting you in the first place.</3 <br><br>
 
 <b>𝐂𝐎𝐏𝐘𝐂𝐀𝐓𝐒 / 𝐈𝐍𝐒𝐏𝐎 𝐖𝐈𝐓𝐇𝐎𝐔𝐓 𝐏𝐄𝐑𝐌𝐈𝐒𝐒𝐈𝐎𝐍</b><br>
