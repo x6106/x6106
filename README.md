@@ -86,4 +86,4 @@ If you force me into anything I'm not okay with or keep pushing after I've said 
 </div>
 
 <br></br>
-<img src="https://files.catbox.moe/8fmxyy.png" width="1000" height="250">
+<img src="https://i.pinimg.com/1200x/25/63/cf/2563cf26eb37a3148400e3c5f7fcc93a.jpg" width="1000" height="300">
